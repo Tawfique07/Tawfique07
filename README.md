@@ -8,6 +8,5 @@
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about HTML, CSS, JAVASCRIPT
 - 📫 How to reach me: mdtoufiq2342@gmail.com
-- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I love Watching  movies.
 
